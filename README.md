@@ -1,0 +1,6 @@
+- [https://blogspot0407.github.io](https://blogspot0407.github.io)
+- [https://www.quora.com/profile/Rachel-Darvall](https://www.quora.com/profile/Rachel-Darvall)
+- [https://www.youtube.com/channel/UCurnrLKeAeue9TwLYOV995g](https://www.youtube.com/channel/UCurnrLKeAeue9TwLYOV995g)
+- [https://x.com/RachelDarvall](https://x.com/RachelDarvall)
+- [https://yo.fan/23823519](https://yo.fan/23823519)
+- [http://isaccobuccho.github.io/](http://isaccobuccho.github.io/)
